@@ -1,1 +1,1 @@
-# większość repo jest prywatna
+# prawie wszystkie repo są prywatne
