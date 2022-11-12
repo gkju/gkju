@@ -1,1 +1,1 @@
-# prawie wszystkie repo są prywatne
+siema siema kocham izrael i kombi enumeratywne 
