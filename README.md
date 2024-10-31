@@ -1,1 +1,1 @@
-
+Second year Mathematics and Computer Science student at University of Warsaw, passionate about the dichotomy between structure and randomness and proofs which include 30x30 matrices bashed by sagemath.
